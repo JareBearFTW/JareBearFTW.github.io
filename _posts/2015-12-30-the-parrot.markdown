@@ -4,7 +4,7 @@ title: The Parrot
 layout: post
 tags: [Hebron, The, Parrot, nature]
 ---
-![](https://goo.gl/photos/1NX3FM8yDAF8DkZT8)
+![](https://lh3.googleusercontent.com/eZ1ulcaa2HWs5FkLGBN143-T3xxnxbCJ15dQqKSi95WRJF21fG3QawMrvGK2vIvPojTQ177kXnRx=w858-h643-no)
 
 	This is one of my all-time favorites! Basically we had these fake parrots from some old pirate costumes just sitting around in our basement collecting dust… So my brother Derek and I decided why not do something fun with them and zip-tie one of them to a tree branch near a busy road where its visible (but not too visible)!?! So that’s exactly what we did!
 	We positioned it in just the perfect spot right near the first roundabout in Hebron, carefully positioned so that when people would drive by and see it, they would think “wow! Look! It’s a parrot!” but could never get a close enough look because of the angle of the tree to the road, so as not to give away its lifeless nature. Then they would see it sitting there again when they drove by the next day and the next day and the next! :D 
