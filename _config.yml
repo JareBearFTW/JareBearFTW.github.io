@@ -1,0 +1,10 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://JareBearFTW.github.io
+title: Shenanigan Of The Week
+email: jarebearftw@gmail.com
+author: Jared K
+description: Past and present weekly shenanigans of Jared K
+paginate: 3
+google_analytics: 
